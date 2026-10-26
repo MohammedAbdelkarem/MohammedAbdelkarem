@@ -14,6 +14,6 @@ Software & AI Engineer combining 3 years of scalable backend architecture and sy
 
 ---
 
-![](https://visitor-badge.laobi.icu/badge?page_id=MohammedAbdelkarem.MohammedAbdelkarem)
+![](https://visitor-badge.laobi.icu/badge?page_id=MohammedAbdelkarem.MohammedAbdelkarem)<br/>
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
